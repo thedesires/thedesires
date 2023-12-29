@@ -1,6 +1,8 @@
 <p align="center">
  <img width="200" src="https://cdn.discordapp.com/attachments/1183070567889379500/1190246675562889286/cdd3020a10214addb152035135ca7f53.png?ex=65a11a99&is=658ea599&hm=16835f5165e63d2cdc995d2afb1477b07312510b29bd91325a8ffd47ca86fde0&"
 </p>
+ <img width="25" src="https://gifcity.carrd.co/assets/images/gallery02/90d1535d.gif?v=7421cb56"
+ </p>
 
 
 > i just wanna explode
@@ -156,6 +158,7 @@
  <p/>
 
 
+
 <p align="center">
 <img width="125" src="https://64.media.tumblr.com/f30043364ef25b74f2b366c1129481ed/7fbf3281a4714bc7-fe/s250x400/905903342a4d938939b77989906c0e0d3a2bc7ce.gifv"
 <p/>
@@ -246,3 +249,7 @@
 <img width="170" src="https://gifcity.carrd.co/assets/images/gallery23/9ff03ebd.gif?v=7421cb56"
 
 > bye
+
+<p align="center">
+ <img width="2000" src="https://gifcity.carrd.co/assets/images/gallery40/0a24ec5b.gif?v=7421cb56"
+ <p/>
