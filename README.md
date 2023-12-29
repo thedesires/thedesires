@@ -5,7 +5,7 @@
 
 > i just wanna explode
  
->> read my rentry byi thank u
+>> read my rentry byi thank u, unless youre just only gonna C + H then theres no need to
 
 <p align="center">
  <img width="80" src="https://64.media.tumblr.com/676bdeeeeb25c938dbf33131aab354cd/85e0f5d14f85bcb6-dc/s100x200/02c2a264d858d9e3256a031c112615ea63d7f0e3.pnj"
