@@ -10,8 +10,6 @@
 >> please int i dont bite and im looking for more friends, esp satosugu and itafushi friends
 
 >>> read my rentry byi thank u, unless youre just only gonna C + H then theres no need to ^_^)b
-</p>
-btw sign my guestbook hehehe https://cass.123guestbook.com/
 
 
 <p align="center">
