@@ -7,7 +7,7 @@
 
 > i just wanna explode
 
->> please int i dont bite and im looking for more friends, esp satosugu and itafushi friends
+>> please int i dont bite and im looking for more friends, i rlly love dunmeshi atm!!
 
 >>> read my rentry byi thank u, unless youre just only gonna C + H then theres no need to ^_^)b
 
