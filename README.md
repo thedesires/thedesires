@@ -1,5 +1,5 @@
 <p align="center">
- <img width="200" src="https://cdn.discordapp.com/attachments/952161670392844298/1206967465431531590/067088abfd1dc15984c3291ab89f3bb4.png?ex=65ddef0c&is=65cb7a0c&hm=b903c76ffe2c1face0dcd0600d2e840332f052d4d712f3b0460aa04ef8c703e4&"
+ <img width="200" src="https://cdn.discordapp.com/attachments/952161670392844298/1206967465431531590/067088abfd1dc15984c3291ab89f3bb4.png?ex=6646158c&is=6644c40c&hm=4ab5b0cbc88bfd51b7c641ac237d4f25c9aa687a71c09f1c1b82bbee2c3c6d9b&"
 </p>
  <img width="25" src="https://gifcity.carrd.co/assets/images/gallery02/90d1535d.gif?v=7421cb56"
  </p>
@@ -24,12 +24,6 @@
  <img width="80" src="https://64.media.tumblr.com/4687472d4ff6923d4aa5a820ba3df44f/d79b386dd434d7d8-b6/s100x200/50a4ff44e8da23a4df0713e993a296de3eff187a.pnj"
 </p>
  <img width="80" src="https://64.media.tumblr.com/5dbb2723f19795861756939495d6d533/c3ae5378fa1764af-72/s100x200/bc0ac5b2c13884e47e7cbda21825199669e6f3bc.gifv"
-</p>
- <img width="87" src="https://cdn.discordapp.com/attachments/880040889668485130/945251020823478282/7c7e98b4.png"
-</p>
- <img width="80" src="https://cdn.discordapp.com/attachments/952161670392844298/1109754274298216498/63a67dc1b9a.gif"
-</p>
- <img width="80" src="https://cdn.discordapp.com/attachments/952161670392844298/1109754273761341440/84012c2165.png"
 </p>
  <img width="80" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/db747121-5db6-471b-9cc2-8159df3186d6/dg5i91r-6dfd94b6-9620-4c13-b253-a2b3e8ab2c2a.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2RiNzQ3MTIxLTVkYjYtNDcxYi05Y2MyLTgxNTlkZjMxODZkNlwvZGc1aTkxci02ZGZkOTRiNi05NjIwLTRjMTMtYjI1My1hMmIzZThhYjJjMmEuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.npV5u6ODjZE2CjEThwlfRkToxGyWsVvFyTiptXiXrlQ"
 </p>
