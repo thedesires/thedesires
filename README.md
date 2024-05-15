@@ -207,10 +207,6 @@
 <p/>
 <img width="170" src="https://64.media.tumblr.com/b87696a981aa332134bf166dea2fe534/37901a7869227e54-c8/s250x400/75a4076df057046c683290abaa91ef3640ff5968.gifv"
 <p/>
-<img width="170" src="https://64.media.tumblr.com/958d9c81c19bc5736d080a57e57ac144/68e393feeeee9c91-ba/s250x400/9cacccd5715d6d0ec98ac1ef1c373ef079b01112.gifv"
-<p/>
-<img width="170" src="https://cdn.discordapp.com/attachments/1183070567889379500/1190242910348783646/blinkiesCafe-9c.gif?ex=65a11717&is=658ea217&hm=55bbe80bcf431d43cfde8992e56810832413b205e8a3dc4c926727320a645ca1&"
-<p/>
 <img width="170" src="https://cdn.discordapp.com/attachments/1183070567889379500/1190242910726258759/0113-autism.gif?ex=65a11717&is=658ea217&hm=b5300781cbba72cd6cacdf02238b80dbcbbf2e1024490dbaee466936cdbfa23a&"
 <p/>
 <img width="170" src="https://64.media.tumblr.com/872b5f4cfb0528e2d3dfd66a29467d34/3565d40ceb643f44-7a/s400x600/e44be6850dfbc41f50319de52068d17ecf6c4aa8.gifv"
