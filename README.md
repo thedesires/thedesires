@@ -1,5 +1,5 @@
 <p align="center">
- <img width="200" src="https://cdn.discordapp.com/attachments/952161670392844298/1206967465431531590/067088abfd1dc15984c3291ab89f3bb4.png?ex=6646158c&is=6644c40c&hm=4ab5b0cbc88bfd51b7c641ac237d4f25c9aa687a71c09f1c1b82bbee2c3c6d9b&"
+ <img width="200" src="https://i.imgur.com/XhG66pd.png"
 </p>
  <img width="25" src="https://gifcity.carrd.co/assets/images/gallery02/90d1535d.gif?v=7421cb56"
  </p>
