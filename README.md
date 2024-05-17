@@ -74,6 +74,8 @@
  <img width="80" src="https://64.media.tumblr.com/578fe600fb50e8754f3b84c3937072ea/509dca664f2eb5e4-72/s100x200/848bb70e66e5f5f6d09b5a76f8889d3668808121.gifv"
 </p>
  <img width="80" src="https://64.media.tumblr.com/4daa8c5634dbb00d0e15760273d261c9/509dca664f2eb5e4-eb/s100x200/eee1d183f3b68701a3d8b212e91d9d8622361067.gifv"
+ </p>
+ <img width="80" src="https://64.media.tumblr.com/7ef45c1787a03b7759abbc42cc90fe87/b553fbecacc6e296-58/s100x200/7ff9093e8100769e5c520f2d62f78bab31eda61d.gifv"
 </p>
  <img width="80" src="https://64.media.tumblr.com/221b6e64aee5453d154672b7d95a6aad/509dca664f2eb5e4-01/s250x400/52cd39b9a335cc2fe7091bc3546b6b36430b2862.gifv"
 </p>
@@ -104,6 +106,8 @@
  <img width="80" src="https://64.media.tumblr.com/9245a15dad34f3b6bd5179908407ec73/e16d9c3fd8438e13-af/s100x200/ccf910778204ed13b524dc4db741a009fb08e47c.jpg"
 </p>
  <img width="80" src="https://files.catbox.moe/lcm1r5.png"
+</p>
+ <img width="80" src="https://64.media.tumblr.com/3fcd053c5e207af4d78a1218a29d527a/6f77a12e73175f4a-71/s250x400/12c1a372bb36f959dcf9d75df8f8f5331c75f43e.pnj"
 </p>
  <img width="80" src="https://i.ibb.co/5sgWbY0/fd2cbe5a.jpg"
  </p>
@@ -142,12 +146,13 @@
  <img width="67" src="https://i.imgur.com/KDiCKbI.gif"
  </p>
  <img width="80" src="https://i.imgur.com/nXuRFA5.gif"
-  </p>
+ </p>
  <img width="80" src="https://gifcity.carrd.co/assets/images/gallery55/e45f5cec.png?v=7421cb56"
-   </p>
+ </p>
  <img width="80" src="https://gifcity.carrd.co/assets/images/gallery61/7e88870d.gif?v=7421cb56"
  <p/>
-
+ <img width="80" src="https://64.media.tumblr.com/2ff2dc7d4f00087670a9eedd3191ceb6/b553fbecacc6e296-b6/s100x200/a44f8128f65fd14ea5ceb439ca3c4941e5f05af7.gifv"
+ <p/>
 
 
 <p align="center">
@@ -232,6 +237,9 @@
 <img width="170" src="https://gifcity.carrd.co/assets/images/gallery20/8d6b592f.gif?v=7421cb56"
 <p/>
 <img width="170" src="https://gifcity.carrd.co/assets/images/gallery23/9ff03ebd.gif?v=7421cb56"
+<p/>
+<img width="170" src="https://64.media.tumblr.com/3748737e36c88696432b14184d10af78/7d64d74e289945e9-a9/s250x400/9e8cf9429163156164464bf60fc5a6011d8e962e.gifv"
+<p/>
 
 > bye
 
