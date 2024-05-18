@@ -9,7 +9,7 @@
 
 >> please int i dont bite and im looking for more friends, i rlly love dunmeshi atm!!
 
->>> read my rentry byi thank u, unless youre just only gonna C + H then theres no need to ^_^)b
+>>> im often offtab so w2i!!!! im always c + h free :3
 
 
 <p align="center">
