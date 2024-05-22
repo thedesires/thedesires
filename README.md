@@ -1,24 +1,34 @@
 <p align="center">
- <img width="200" src="https://i.imgur.com/XhG66pd.png"
-</p>
- <img width="25" src="https://gifcity.carrd.co/assets/images/gallery02/90d1535d.gif?v=7421cb56"
+ <img width="300" src="https://64.media.tumblr.com/36363daf9a2d59c90144790ecb0fa40c/9601e9dcaf9f6061-61/s100x200/e16630bbbb976934a0498916544682d1f38e9394.pnj"
+ </p>
+ <p align="center"> 
+ <img width="600" src="https://gifcity.carrd.co/assets/images/gallery48/70d22c38.png?v=d55ea43d"
+ </p>
+  <p align="center"> 
+  ➤ <strong>feel free to int</strong>, i dont bite and i'm looking for more friends
+   </p>
+  <p align="center"> 
+  kiss/boop & c+h is okay, idm at all
+   </p>
+  <p align="center"> 
+   ➤ <strong>whisper 2 int</strong>, im offtab alot or not just not paying attention
+   </p>
+  <p align="center"> 
+   ➤ <strong>i dont talk much</strong>, im not talkative and i often dont int first due to anxiety
+     </p>
+  <p align="center">
+ but im cringe and free :3
+ </p>
+  <p align="center"> 
+ <img width="600" src="https://gifcity.carrd.co/assets/images/gallery48/70d22c38.png?v=d55ea43d"
+  </p>
+  <p align="center">
+[ my stamps & blinkie collection.. enjoy ! ]
  </p>
 
 
-> i just wanna explode
-
->> please int i dont bite and im looking for more friends, i rlly love dunmeshi atm!!
-
->>> im often offtab so w2i!!!! im always c + h free :3
-
 
 <p align="center">
- <img width="80" src="https://64.media.tumblr.com/676bdeeeeb25c938dbf33131aab354cd/85e0f5d14f85bcb6-dc/s100x200/02c2a264d858d9e3256a031c112615ea63d7f0e3.pnj"
-</p>
- <img width="80" src="https://64.media.tumblr.com/def6d712c593b05f3c27515d630ed4d1/85e0f5d14f85bcb6-f5/s100x200/6edbba27b7dd679fb6b26997a72c959c1489ab84.pnj"
-</p>
- <img width="80" src="https://64.media.tumblr.com/bc799da7aa4582decf93174a5bd07804/85e0f5d14f85bcb6-9c/s100x200/7b5c5a4b5a7b81b0692c14a295c0a8fac192d5fa.pnj"
-</p>
  <img width="80" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/fc860ceb-442d-4958-9ce7-5c430f5a9973/dedsfbe-82029c15-1b31-4c16-bf42-1bc09444287b.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2ZjODYwY2ViLTQ0MmQtNDk1OC05Y2U3LTVjNDMwZjVhOTk3M1wvZGVkc2ZiZS04MjAyOWMxNS0xYjMxLTRjMTYtYmY0Mi0xYmMwOTQ0NDI4N2IuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.OdpXaa2_RfqsddByK_JPSZtID64QLxM47miprOVBCIg"
  </p>
  <img width="80" src="https://64.media.tumblr.com/4687472d4ff6923d4aa5a820ba3df44f/d79b386dd434d7d8-b6/s100x200/50a4ff44e8da23a4df0713e993a296de3eff187a.pnj"
@@ -241,7 +251,7 @@
 <img width="170" src="https://64.media.tumblr.com/3748737e36c88696432b14184d10af78/7d64d74e289945e9-a9/s250x400/9e8cf9429163156164464bf60fc5a6011d8e962e.gifv"
 <p/>
 
-> bye
+> i just wanna explode bye :3
 
 <p align="center">
  <img width="2000" src="https://gifcity.carrd.co/assets/images/gallery40/0a24ec5b.gif?v=7421cb56"
