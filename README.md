@@ -5,16 +5,16 @@
  <img width="600" src="https://gifcity.carrd.co/assets/images/gallery48/70d22c38.png?v=d55ea43d"
  </p>
   <p align="center"> 
-  ➤ <strong>feel free to int</strong>, i dont bite and i'm looking for more friends
+  <strong>➤  feel free to int</strong>, i dont bite and i'm looking for more friends
    </p>
   <p align="center"> 
   kiss/boop & c+h is okay, idm at all
    </p>
   <p align="center"> 
-   ➤ <strong>whisper 2 int</strong>, im offtab alot or not just not paying attention
+  <strong>➤  whisper 2 int</strong>, im offtab alot or not just not paying attention
    </p>
   <p align="center"> 
-   ➤ <strong>i dont talk much</strong>, im not talkative and i often dont int first due to anxiety
+  <strong>➤  i dont talk much</strong>, im not talkative and i often dont int first due to anxiety
      </p>
   <p align="center">
  but im cringe and free :3
