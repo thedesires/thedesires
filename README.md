@@ -17,13 +17,13 @@
   <strong>➤  i dont talk much</strong>, im not talkative and i often dont int first due to anxiety
      </p>
   <p align="center">
- but im cringe and free :3
+ im cringe and free :3
  </p>
   <p align="center"> 
  <img width="600" src="https://gifcity.carrd.co/assets/images/gallery48/70d22c38.png?v=d55ea43d"
   </p>
   <p align="center">
-[ my stamps & blinkie collection.. enjoy ! ]
+[ my stamps & blinkies, enjoy !!!!! ]
  </p>
 
 
