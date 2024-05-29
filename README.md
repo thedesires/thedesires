@@ -17,10 +17,10 @@
   <strong>➤⠀i dont talk much</strong>, im not talkative and i often dont int first due to anxiety
      </p>
   <p align="center"> 
-  <strong>➤⠀im very passionated about my hyperfixations</strong>, i can come out
+  <strong>➤⠀im very passionated about my hyperfixations</strong>, i can seem
   </p>
   <p align="center"> 
- uninterested or overly hype but that doesnt mean i feel bothered.
+ uninterested or overhype, please be patient with me.
   </p>
   <p align="center">
  <img width="20" src="https://64.media.tumblr.com/325a813135b67867e58b8c2e7323dc63/1a1cb80527a527ae-9e/s75x75_c1/7668cf968c3534d373a7ebdf4770a0ff8ac4dff1.gifv"
@@ -46,10 +46,6 @@
  <img width="80" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/db747121-5db6-471b-9cc2-8159df3186d6/dg5i91r-6dfd94b6-9620-4c13-b253-a2b3e8ab2c2a.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2RiNzQ3MTIxLTVkYjYtNDcxYi05Y2MyLTgxNTlkZjMxODZkNlwvZGc1aTkxci02ZGZkOTRiNi05NjIwLTRjMTMtYjI1My1hMmIzZThhYjJjMmEuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.npV5u6ODjZE2CjEThwlfRkToxGyWsVvFyTiptXiXrlQ"
 </p>
  <img width="80" src="https://64.media.tumblr.com/1da4d3e08da65143bc2eaf32188e7d58/cef6f1fb0037cf29-71/s100x200/f5583a0034ea147cc1f99b96fc958d039461a8f1.gifv"
-</p>
- <img width="80" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/4c2066ed-87a2-46d1-bc43-1c4b969fca68/ddqxgjh-12c93c3a-4080-42b0-b51c-5a84759ff9d8.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzRjMjA2NmVkLTg3YTItNDZkMS1iYzQzLTFjNGI5NjlmY2E2OFwvZGRxeGdqaC0xMmM5M2MzYS00MDgwLTQyYjAtYjUxYy01YTg0NzU5ZmY5ZDgucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.nesAjwrk2aVmfI8CwH6JVDyqX8fGM_SYbhx550_vs1Y"
-</p>
- <img width="80" src="https://64.media.tumblr.com/692b97d8e3204742445172e9fa4c2393/d79b386dd434d7d8-33/s250x400/56ca706d7e9635c60362a6dda19c5873efaef6fa.pnj"
 </p>
  <img width="80" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/97914a0d-e469-4de8-a5cd-07fa23676951/d2kof4k-b0cb254e-b3bb-4426-accf-02988b10b236.jpg/v1/fill/w_99,h_56,q_75,strp/shadow_stolen_cookies_stamp_by_supremesonrio_d2kof4k-fullview.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTYiLCJwYXRoIjoiXC9mXC85NzkxNGEwZC1lNDY5LTRkZTgtYTVjZC0wN2ZhMjM2NzY5NTFcL2Qya29mNGstYjBjYjI1NGUtYjNiYi00NDI2LWFjY2YtMDI5ODhiMTBiMjM2LmpwZyIsIndpZHRoIjoiPD05OSJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.DGkuSWg_RYq8fa7tbsp2amDTzymfJXi0nBY_n1orTE8"
 </p>
@@ -194,8 +190,6 @@
 <p/>
 <img width="170" src="https://biscuit.crd.co/assets/images/gallery82/96f01221.gif?v=532faf5f"
 <p/>
-<img width="170" src="https://adriansblinkiecollection.neocities.org/e5.gif"
-<p/>
 <img width="170" src="https://i.imgur.com/2RnCtaC.gif"
 <p/>
 <img width="170" src="https://64.media.tumblr.com/a6f3ebcfd24c6edd3a8da2e540337ed8/2bbb52212c4c0cfa-a6/s250x400/262b8a6e3195fadff62482384d49f3454bf5443e.gifv"
@@ -216,31 +210,19 @@
 <p/>
 <img width="170" src="https://64.media.tumblr.com/1a4c072ecd342402caae9247496b306a/db615969721f26d4-f6/s250x400/e0afd42854a9a9e37761d9fc03618efcd1574100.gifv"
 <p/>
-<img width="170" src="https://64.media.tumblr.com/c11fa24c2c81f7915e56b789d227946b/8c8defe604fbe89a-fe/s250x400/419bb14b74a961740264c6e3e8b9339fb49eaaa6.gifv"
-<p/>
 <img width="170" src="https://64.media.tumblr.com/ed0252ad21a6500aef4e5f4b638887ea/4bd2a2a7d2e59814-d8/s400x600/b883152174dd1a7bd8aada5d5a195186a48007b9.gifv"
 <p/>
-<img width="170" src="https://64.media.tumblr.com/162b6b3c8996dca1dd37c65d8d2c35db/ee5fc417313dd853-a2/s400x600/ba5da6c11b4c49f9df4cf8ef912d196f3ef1f97a.gifv"
-<p/>
 <img width="170" src="https://64.media.tumblr.com/3226232d4ad9a8fed1eb91924af87e5f/b4efadd60ae6c6cc-5a/s250x400/a89a7b65cba8a5756ab23102913fcb817e8a1682.gifv"
-<p/>
-<img width="170" src="https://64.media.tumblr.com/e1d51d060bf8a448cd6d27dc1206d502/b4f54c7f92bc9f3b-cd/s250x400/14490e70ab94d9332a5e34b580148fb6770a8d16.gifv"
-<p/>
-<img width="170" src="https://64.media.tumblr.com/ca14907c1cf640cc0e44230023cd8e2d/b4f54c7f92bc9f3b-8e/s250x400/8dca66d257d2e4d0222fc934d074a558c208ac39.gifv"
 <p/>
 <img width="170" src="https://64.media.tumblr.com/b87696a981aa332134bf166dea2fe534/37901a7869227e54-c8/s250x400/75a4076df057046c683290abaa91ef3640ff5968.gifv"
 <p/>
 <img width="170" src="https://64.media.tumblr.com/872b5f4cfb0528e2d3dfd66a29467d34/3565d40ceb643f44-7a/s400x600/e44be6850dfbc41f50319de52068d17ecf6c4aa8.gifv"
-<p/>
-<img width="170" src="https://64.media.tumblr.com/9d0cb71b88c8ef320300cb210f6a2e47/6d5e4cdfb37f179c-a2/s250x400/6cd4259eaa032470b4f2c90fb0973764e307159e.gifv"
 <p/>
 <img width="170" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/65c61b78-1886-4f6e-bf9d-c1e26cdde70a/dd9wz60-f5ae7c43-ed88-442d-9829-9a5b0ffd36fd.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzY1YzYxYjc4LTE4ODYtNGY2ZS1iZjlkLWMxZTI2Y2RkZTcwYVwvZGQ5d3o2MC1mNWFlN2M0My1lZDg4LTQ0MmQtOTgyOS05YTViMGZmZDM2ZmQuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.fq_pd_k0TYB3FaLGM88naNMXYWumDEMoMYjd2tzSem4"
 <p/>
 <img width="170" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/45a3e678-382d-43df-8ce5-df2c6629c87c/dd0f1ej-b1a6cbb1-b65a-48d6-9096-d63f00b7d395.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzQ1YTNlNjc4LTM4MmQtNDNkZi04Y2U1LWRmMmM2NjI5Yzg3Y1wvZGQwZjFlai1iMWE2Y2JiMS1iNjVhLTQ4ZDYtOTA5Ni1kNjNmMDBiN2QzOTUuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.mac7v-DprHYhlWiUL94BJ4NMtJ2PkFAk8zugo0lC8ug"
 <p/>
 <img width="170" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/4e88c653-b5f8-482c-bda3-7779dddb0c99/ddbv8c2-0acb2d8f-bc14-4bd7-9d12-3e2c10e5981e.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzRlODhjNjUzLWI1ZjgtNDgyYy1iZGEzLTc3NzlkZGRiMGM5OVwvZGRidjhjMi0wYWNiMmQ4Zi1iYzE0LTRiZDctOWQxMi0zZTJjMTBlNTk4MWUuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.D5dyxofhgjD-A2hdPtaKnFEycE1T2_zb303GwEKmcBQ"
-<p/>
-<img width="170" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/7f07c132-6e55-4943-9bb7-dbef21458a42/dfyjkbq-05c166d0-27e9-432d-9b45-a6b810a87a6c.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzdmMDdjMTMyLTZlNTUtNDk0My05YmI3LWRiZWYyMTQ1OGE0MlwvZGZ5amticS0wNWMxNjZkMC0yN2U5LTQzMmQtOWI0NS1hNmI4MTBhODdhNmMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.M1B-glG6o4UqgoKEOt2DBn6tEtDCpv8MuZb8aFRLUAg"
 <p/>
 <img width="170" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/4e88c653-b5f8-482c-bda3-7779dddb0c99/ddbv9ps-5a084814-f294-4430-9e26-86fc645f3673.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzRlODhjNjUzLWI1ZjgtNDgyYy1iZGEzLTc3NzlkZGRiMGM5OVwvZGRidjlwcy01YTA4NDgxNC1mMjk0LTQ0MzAtOWUyNi04NmZjNjQ1ZjM2NzMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.6frJI2VU4dKsmdfQsQRr6n5IkGLKF4WmXKJvsOBv4c4"
 <p/>
