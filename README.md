@@ -16,12 +16,6 @@
   <p align="center"> 
   <strong>➤⠀i dont talk much</strong>, im not talkative and i often dont int first due to anxiety
      </p>
-  <p align="center"> 
-  <strong>➤⠀im very passionated about my hyperfixations</strong>, i can seem
-  </p>
-  <p align="center"> 
- uninterested or overhype, please be patient with me.
-  </p>
   <p align="center">
  <img width="20" src="https://64.media.tumblr.com/325a813135b67867e58b8c2e7323dc63/1a1cb80527a527ae-9e/s75x75_c1/7668cf968c3534d373a7ebdf4770a0ff8ac4dff1.gifv"
  </p>
