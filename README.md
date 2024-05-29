@@ -5,18 +5,26 @@
  <img width="600" src="https://gifcity.carrd.co/assets/images/gallery48/70d22c38.png?v=d55ea43d"
  </p>
   <p align="center"> 
-  <strong>➤  feel free to int</strong>, i dont bite and i'm looking for more friends
+  <strong>➤⠀feel free to int</strong>, i dont bite and i'm looking for more friends
    </p>
   <p align="center"> 
   kiss/boop & c+h is okay, idm at all
    </p>
   <p align="center"> 
-  <strong>➤  whisper 2 int</strong>, im offtab alot or not just not paying attention
+  <strong>➤⠀whisper 2 int</strong>, im offtab alot or not just not paying attention
    </p>
   <p align="center"> 
-  <strong>➤  i dont talk much</strong>, im not talkative and i often dont int first due to anxiety
+  <strong>➤⠀i dont talk much</strong>, im not talkative and i often dont int first due to anxiety
      </p>
+  <p align="center"> 
+  <strong>➤⠀im very passionated about my hyperfixations</strong>, i can come out
+  </p>
+  <p align="center"> 
+ uninterested or overly hype but that doesnt mean i feel bothered.
+  </p>
   <p align="center">
+ <img width="20" src="https://64.media.tumblr.com/325a813135b67867e58b8c2e7323dc63/1a1cb80527a527ae-9e/s75x75_c1/7668cf968c3534d373a7ebdf4770a0ff8ac4dff1.gifv"
+ </p>
  im cringe and free :3
  </p>
   <p align="center"> 
@@ -121,8 +129,10 @@
 </p>
  <img width="80" src="https://i.ibb.co/5sgWbY0/fd2cbe5a.jpg"
  </p>
- <img width="80" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/4ba23af4-2fb0-4aba-ab63-672e92abfba1/dddek9t-8e1f1c2d-f24d-4a25-be9c-234bcba2fa1f.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzRiYTIzYWY0LTJmYjAtNGFiYS1hYjYzLTY3MmU5MmFiZmJhMVwvZGRkZWs5dC04ZTFmMWMyZC1mMjRkLTRhMjUtYmU5Yy0yMzRiY2JhMmZhMWYuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.aD1E_kqpDcXXs6gR04HW0F9-fblROr90Xya8ImUtGms"
+ <img width="80" src="https://wilardo.crd.co/assets/images/gallery16/61942912.png?v=7415df4c"
 </p>
+ <img width="80" src="https://wilardo.crd.co/assets/images/gallery16/b9579cdb.png?v=7415df4c"
+ </p>
  <img width="80" src="https://64.media.tumblr.com/c35ab7db7fafde27e76ea18cbe308991/f1498ee937fc1ed0-bf/s100x200/5100b44511dd4c1b2d435d44d2e3b73d34c8b3d6.gifv"
 </p>
  <img width="80" src="https://64.media.tumblr.com/190455157af54a709ff33240c6e47a7c/f1498ee937fc1ed0-c1/s100x200/731fa0545c5509a9b5d6eb51b91ea40d64868516.pnj"
@@ -249,6 +259,8 @@
 <img width="170" src="https://gifcity.carrd.co/assets/images/gallery23/9ff03ebd.gif?v=7421cb56"
 <p/>
 <img width="170" src="https://64.media.tumblr.com/3748737e36c88696432b14184d10af78/7d64d74e289945e9-a9/s250x400/9e8cf9429163156164464bf60fc5a6011d8e962e.gifv"
+<p/>
+<img width="170" src="https://wilardo.crd.co/assets/images/gallery01/d391dc01.gif?v=7415df4c"
 <p/>
 
 > i just wanna explode bye :3
