@@ -17,10 +17,16 @@
   <strong>➤⠀i dont talk much</strong>, im not talkative and i often dont int first due to anxiety
      </p>
   <p align="center">
+  <strong>➤⠀pls sign my guestbook!!,</strong> if you want to ofc ^_^
+  </p>
+  <p align="center">
  <img width="20" src="https://64.media.tumblr.com/325a813135b67867e58b8c2e7323dc63/1a1cb80527a527ae-9e/s75x75_c1/7668cf968c3534d373a7ebdf4770a0ff8ac4dff1.gifv"
  </p>
  im cringe and free :3
  </p>
+  <p align="center"> 
+<a href="https://cass.123guestbook.com/">GUESTBOOK</a> ${\color{red}.}$ <a href="https://rentry.co/laibru">RENTRY</a> ${\color{red}.}$ <a href="https://listography.com/thedesires">INTERESTS</a>
+  </p>
   <p align="center"> 
  <img width="600" src="https://gifcity.carrd.co/assets/images/gallery48/70d22c38.png?v=d55ea43d"
   </p>
