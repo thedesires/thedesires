@@ -31,7 +31,6 @@
  <img width="600" src="https://gifcity.carrd.co/assets/images/gallery48/70d22c38.png?v=d55ea43d"
   </p>
   <p align="center">
-[ my stamps & blinkies, enjoy !!!!! ]
  </p>
 
 
@@ -100,6 +99,8 @@
  <img width="80" src="https://64.media.tumblr.com/9bb6ad2b41b2ca8bd4083caaa9afda74/7fbf3281a4714bc7-8d/s100x200/03b667657a67250f17c074261c4bb6aa0467b17a.gifv"
 </p>
  <img width="80" src="https://64.media.tumblr.com/9cf7664341e5894e12972f9a5b9c98a7/23d531fb15fb3a29-7d/s100x200/4b8e9e29ce0cae3d72ef9a52eabc7f3b79e10a17.pnj"
+ </p>
+ <img width="80" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/6bed105e-27b9-4d88-8df2-8ca5e0c640a4/dc90j4l-80dfd63b-d4e7-4aae-be0e-c51490c4beec.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzZiZWQxMDVlLTI3YjktNGQ4OC04ZGYyLThjYTVlMGM2NDBhNFwvZGM5MGo0bC04MGRmZDYzYi1kNGU3LTRhYWUtYmUwZS1jNTE0OTBjNGJlZWMucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.gsXyLvu7FWo2Srepm11QchmCI9UBbCLOAJvlRtxoN-M"
 </p>
  <img width="80" src="https://64.media.tumblr.com/bc04b261837b91ab8a93410ed56e8f22/23d531fb15fb3a29-8b/s100x200/467ec7db9a880a69fe02a4cae403216e97f13c14.pnj"
 </p>
