@@ -11,7 +11,7 @@
   kiss/boop & c+h is okay, idm at all
    </p>
   <p align="center"> 
-  <strong>➤⠀whisper 2 int</strong>, im offtab alot or not just not paying attention
+  <strong>➤⠀whisper 2 int</strong>, im offtab alot or just not paying attention
    </p>
   <p align="center"> 
   <strong>➤⠀i dont talk much</strong>, im not talkative and i often dont int first due to anxiety
