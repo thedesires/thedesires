@@ -5,22 +5,22 @@
  <img width="600" src="https://gifcity.carrd.co/assets/images/gallery48/70d22c38.png?v=d55ea43d"
  </p>
   <p align="center"> 
-  <strong>➤⠀feel free to int</strong>, i dont bite and i'm looking for more friends
+  <strong>${\color{yellow}➤}$⠀feel free to int</strong>, i dont bite and i'm looking for more friends
    </p>
   <p align="center"> 
   kiss/boop & c+h is okay, idm at all
    </p>
   <p align="center"> 
-  <strong>➤⠀whisper 2 int</strong>, im offtab alot or just not paying attention
+  <strong>${\color{yellow}➤}$⠀whisper 2 int</strong>, im offtab alot or just not paying attention
    </p>
   <p align="center"> 
-  <strong>➤⠀i dont talk much</strong>, im not talkative and i often dont int first due to anxiety
+  <strong>${\color{yellow}➤}$⠀i dont talk much</strong>, im not talkative and i often dont int first due to anxiety
      </p>
   <p align="center">
-  <strong>➤⠀pls sign my atabook!!,</strong> if you want to ofc ^_^
+  <strong>${\color{yellow}➤}$⠀pls sign my atabook!!,</strong> if you want to ofc ^_^
   </p>
   <p align="center">
- <img width="20" src="https://64.media.tumblr.com/325a813135b67867e58b8c2e7323dc63/1a1cb80527a527ae-9e/s75x75_c1/7668cf968c3534d373a7ebdf4770a0ff8ac4dff1.gifv"
+ <img width="20" src="https://64.media.tumblr.com/30204cf266065ff032a385f0fd2dc1e7/7549fe19855bec49-19/s75x75_c1/f311c26f2ace2960af7e457d5d45e4b13275038e.gifv"
  </p>
  im cringe and free :3
  </p>
