@@ -155,6 +155,8 @@
 </p>
  <img width="80" src="https://autism.crd.co/assets/images/gallery05/4a1a48c0.gif?v=69d6a439"
  </p>
+ <img width="80" src="https://64.media.tumblr.com/f3684b3d0572fc8e333b736995b4bed4/0c9d6b33bcece83c-27/s100x200/46001306742557758f0f023ec2448648bd64836e.gifv"
+ </p>
  <img width="80" src="https://i.imgur.com/7K2LHkG.png"
  </p>
  <img width="67" src="https://i.imgur.com/KDiCKbI.gif"
@@ -240,6 +242,8 @@
 <img width="170" src="https://64.media.tumblr.com/3748737e36c88696432b14184d10af78/7d64d74e289945e9-a9/s250x400/9e8cf9429163156164464bf60fc5a6011d8e962e.gifv"
 <p/>
 <img width="170" src="https://wilardo.crd.co/assets/images/gallery01/d391dc01.gif?v=7415df4c"
+<p/>
+<img width="170" src="https://64.media.tumblr.com/9649a2cbdaad4cba3254ad22cf485de2/f975e1a607dcc62d-be/s250x400/7b0c75cd36857af5fdb9057abf338c7d5fdff25b.gifv"
 <p/>
 
 > i just wanna explode bye :3
