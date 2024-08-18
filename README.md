@@ -25,7 +25,12 @@
  im cringe and free :3
  </p>
   <p align="center"> 
-<a href="https://thedesires.atabook.org/">ATABOOK</a> ${\color{red}.}$ <a href="https://bundlrs.cc/kusuo.saiki">BUNDLRS</a> ${\color{red}.}$ <a href="https://listography.com/thedesires">INTERESTS</a>
+<a href="https://thedesires.atabook.org/">ATABOOK</a> ${\color{yellow}.}$ <a href="https://bundlrs.cc/kusuo.saiki">BUNDLRS</a> ${\color{yellow}.}$ <a href="https://listography.com/thedesires">INTERESTS</a>
+  </p>
+  <p align="center">
+ <img width="40" src="https://i.imgur.com/P0WW6FE.png"
+  </p>
+ <img width="40" src="https://i.imgur.com/Xf5QJux.png"
   </p>
   <p align="center"> 
  <img width="600" src="https://gifcity.carrd.co/assets/images/gallery48/70d22c38.png?v=d55ea43d"
