@@ -1,5 +1,5 @@
 <p align="center">
- <img width="300" src="https://64.media.tumblr.com/36363daf9a2d59c90144790ecb0fa40c/9601e9dcaf9f6061-61/s100x200/e16630bbbb976934a0498916544682d1f38e9394.pnj"
+ <img width="900" src="https://i.imgur.com/hOcJZBN.png"
  </p>
  <p align="center"> 
  <img width="600" src="https://gifcity.carrd.co/assets/images/gallery48/70d22c38.png?v=d55ea43d"
