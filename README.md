@@ -61,8 +61,6 @@
 </p>
  <img width="80" src="https://64.media.tumblr.com/f061ea9c12ba98151bf3c59f82bc3bcb/b3d83bbf44993478-ee/s100x200/75e66e1bbd9405f2f51bd709ceaf86b56f0aaaa4.gifv"
 </p>
- <img width="80" src="https://64.media.tumblr.com/e328ee0f3f80c5d6596378979e7f7988/b3d83bbf44993478-7f/s100x200/4c8aafca73e51867644cf0ffd5b3e0d84797a320.pnj"
-</p>
  <img width="80" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/68e0b1b8-b69f-4693-bba0-2bf29e988df5/d9xyupr-18568d36-6fba-438a-a8cb-239c82b160f7.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzY4ZTBiMWI4LWI2OWYtNDY5My1iYmEwLTJiZjI5ZTk4OGRmNVwvZDl4eXVwci0xODU2OGQzNi02ZmJhLTQzOGEtYThjYi0yMzljODJiMTYwZjcuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.j7Z_yY22AU3GyRrbLobygzF7vYO63FG4lwSMJs9QG-g"
 </p>
  <img width="80" src="https://64.media.tumblr.com/0bf344c5582728f0fb02573b7ded63d2/8bdeba2cbc867670-1c/s100x200/5bd6b04b2ab6f3b35c48d61dac6f2675d539853c.gifv"
