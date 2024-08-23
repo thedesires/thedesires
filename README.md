@@ -246,8 +246,12 @@
 <img width="170" src="https://64.media.tumblr.com/9649a2cbdaad4cba3254ad22cf485de2/f975e1a607dcc62d-be/s250x400/7b0c75cd36857af5fdb9057abf338c7d5fdff25b.gifv"
 <p/>
 
-> i just wanna explode bye :3
-
+> souyo domination and yukichie yurinator
 <p align="center">
  <img width="2000" src="https://gifcity.carrd.co/assets/images/gallery40/0a24ec5b.gif?v=7421cb56"
  <p/>
+<p align="center">
+<img width="160" src="https://i.imgur.com/eTdBAeb.png"
+<p/>
+<img width="169" src="https://i.imgur.com/2xvKTh5.png"
+<p/>
