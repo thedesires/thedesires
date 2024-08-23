@@ -20,7 +20,7 @@
   <strong>${\color{yellow}➤}$⠀pls sign my atabook!!,</strong> if you want to ofc ^_^
   </p>
   <p align="center">
- <img width="20" src="https://64.media.tumblr.com/30204cf266065ff032a385f0fd2dc1e7/7549fe19855bec49-19/s75x75_c1/f311c26f2ace2960af7e457d5d45e4b13275038e.gifv"
+ <img width="15" src="https://64.media.tumblr.com/30204cf266065ff032a385f0fd2dc1e7/7549fe19855bec49-19/s75x75_c1/f311c26f2ace2960af7e457d5d45e4b13275038e.gifv"
  </p>
  im cringe and free :3
  </p>
@@ -172,7 +172,7 @@
  <img width="80" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/abace1aa-7111-4c27-ac82-ad9e9c4dbc5f/d2gpn0z-f7534ab1-1614-4349-8d32-2cda99e556e6.png/v1/fill/w_99,h_56,q_80,strp/persona_4_junes_by_kuwaizair_d2gpn0z-fullview.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTYiLCJwYXRoIjoiXC9mXC9hYmFjZTFhYS03MTExLTRjMjctYWM4Mi1hZDllOWM0ZGJjNWZcL2QyZ3BuMHotZjc1MzRhYjEtMTYxNC00MzQ5LThkMzItMmNkYTk5ZTU1NmU2LnBuZyIsIndpZHRoIjoiPD05OSJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.UmRKn6wC81I9tfC4rjhY2P3CgIlFRXPQsoEaqhNOicg"
  <p/>
 
-
+ 
 <p align="center">
 <img width="125" src="https://64.media.tumblr.com/f30043364ef25b74f2b366c1129481ed/7fbf3281a4714bc7-fe/s250x400/905903342a4d938939b77989906c0e0d3a2bc7ce.gifv"
 <p/>
@@ -246,12 +246,12 @@
 <img width="170" src="https://64.media.tumblr.com/9649a2cbdaad4cba3254ad22cf485de2/f975e1a607dcc62d-be/s250x400/7b0c75cd36857af5fdb9057abf338c7d5fdff25b.gifv"
 <p/>
 
-> souyo domination and yukichie yurinator
+> kill persona 4, we all say in unison
 <p align="center">
  <img width="2000" src="https://gifcity.carrd.co/assets/images/gallery40/0a24ec5b.gif?v=7421cb56"
  <p/>
 <p align="center">
-<img width="160" src="https://i.imgur.com/eTdBAeb.png"
+<img width="150" src="https://i.imgur.com/pa6I8bL.png"
 <p/>
-<img width="169" src="https://i.imgur.com/2xvKTh5.png"
-<p/>
+<img width="150" src="https://i.imgur.com/ls79EEa.png"
+ <p/>
