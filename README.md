@@ -5,7 +5,7 @@
  <img width="600" src="https://gifcity.carrd.co/assets/images/gallery48/70d22c38.png?v=d55ea43d"
  </p>
   <p align="center"> 
-  <strong>${\color{yellow}➤}$⠀feel free to int</strong>, i dont bite and i'm up for chatting
+  <strong>${\color{yellow}➤}$⠀feel free to int</strong>, i dont bite and i'm up for conversations
    </p>
   <p align="center"> 
   kiss/boop & c+h is okay, idm at all
