@@ -22,7 +22,7 @@
   <p align="center">
  <img width="15" src="https://64.media.tumblr.com/30204cf266065ff032a385f0fd2dc1e7/7549fe19855bec49-19/s75x75_c1/f311c26f2ace2960af7e457d5d45e4b13275038e.gifv"
  </p>
- freedom of speech which i have none :3
+ cringe & free ♡( ◡‿◡ )
  </p>
   <p align="center"> 
 <a href="https://thedesires.atabook.org/">ATABOOK</a> ${\color{yellow}.}$ <a href="https://bundlrs.cc/kusuo.saiki">BUNDLRS</a> ${\color{yellow}.}$ <a href="https://listography.com/thedesires">INTERESTS</a>
