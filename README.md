@@ -1,45 +1,45 @@
 <p align="center">
 <h4 align="center"
  
-![](https://komarev.com/ghpvc/?username=thedesires&label=𐙚+profile+views+++&color=yellow&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=thedesires&label=𐙚+profile+views+++&color=a02121&abbreviated=true)
 
  </h4>
 <p align="center">
- <img width="900" src="https://i.imgur.com/hOcJZBN.png"
+ <img width="900" src="https://i.imgur.com/jJyZHEN.gif"
  </p>
  <p align="center"> 
- <img width="600" src="https://gifcity.carrd.co/assets/images/gallery48/70d22c38.png?v=d55ea43d"
+ <img width="600" src="https://64.media.tumblr.com/bd1c7c76589cf4b1154e9c24775f3e97/08b6024acb610772-33/s400x600/ec46984004365b494395f1b069126afd192d1132.gifv"
  </p>
   <p align="center"> 
-  <strong>${\color{yellow}➤}$⠀feel free to int</strong>, i dont bite and i'm up for conversations
+  <strong>${\color{red}➤}$⠀feel free to int</strong>, i dont bite and i'm up for conversations
    </p>
   <p align="center"> 
   kiss/boop & c+h is okay, idm at all
    </p>
   <p align="center"> 
-  <strong>${\color{yellow}➤}$⠀whisper 2 int</strong>, im offtab alot or just not paying attention
+  <strong>${\color{red}➤}$⠀whisper 2 int</strong>, im offtab alot or just not paying attention
    </p>
   <p align="center"> 
-  <strong>${\color{yellow}➤}$⠀i dont talk much</strong>, im not talkative and i often dont int first due to anxiety
+  <strong>${\color{red}➤}$⠀i dont talk much</strong>, im not talkative and i often dont int first due to anxiety
      </p>
   <p align="center">
-  <strong>${\color{yellow}➤}$⠀pls sign my atabook!!,</strong> if you want to ofc ^_^
+  <strong>${\color{red}➤}$⠀pls sign my atabook!!,</strong> if you want to ofc ^_^
   </p>
   <p align="center">
- <img width="15" src="https://64.media.tumblr.com/30204cf266065ff032a385f0fd2dc1e7/7549fe19855bec49-19/s75x75_c1/f311c26f2ace2960af7e457d5d45e4b13275038e.gifv"
+ <img width="30" src="https://64.media.tumblr.com/cb09f04f1d38ea4f52dec7e3b991d3ab/96812b3b3a743299-18/s75x75_c1/fd588292d43721b6d74e6dc220a60f9103cc1ba8.gifv"
  </p>
  cringe & free ♡( ◡‿◡ )
  </p>
   <p align="center"> 
-<a href="https://thedesires.atabook.org/">ATABOOK</a> ${\color{yellow}.}$ <a href="https://bundlrs.cc/kusuo.saiki">BUNDLRS</a> ${\color{yellow}.}$ <a href="https://listography.com/thedesires">INTERESTS</a>
+<a href="https://thedesires.atabook.org/">ATABOOK</a> ${\color{red}.}$ <a href="https://bundlrs.cc/kusuo.saiki">BUNDLRS</a> ${\color{red}.}$ <a href="https://listography.com/thedesires">INTERESTS</a>
   </p>
   <p align="center">
- <img width="40" src="https://i.imgur.com/P0WW6FE.png"
-  </p>
- <img width="40" src="https://i.imgur.com/Xf5QJux.png"
+ <img width="35" src="https://64.media.tumblr.com/1afddb70392f6d77a04061f6f2f74aff/2548834662a1f658-67/s75x75_c1/abff121fa1c8d18f60e4bb90df6c9c4dfac57e23.gifv"
+ </p>
+ <img width="35" src="https://64.media.tumblr.com/dd391fbd025b34ce969370a10706e18e/6caf58e0782c326d-a1/s75x75_c1/04d3dd7bf8d2d4d6a74bf4dc58fa49cb0a4ff90d.gifv"
   </p>
   <p align="center"> 
- <img width="600" src="https://gifcity.carrd.co/assets/images/gallery48/70d22c38.png?v=d55ea43d"
+ <img width="600" src="https://64.media.tumblr.com/bd1c7c76589cf4b1154e9c24775f3e97/08b6024acb610772-33/s400x600/ec46984004365b494395f1b069126afd192d1132.gifv"
   </p>
   <p align="center">
  </p>
@@ -158,12 +158,8 @@
  <img width="80" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/0770f9ec-ed13-4241-a92d-b57b1228495c/d6nyz41-84aadc7f-fd92-4bfb-bea1-985563850807.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzA3NzBmOWVjLWVkMTMtNDI0MS1hOTJkLWI1N2IxMjI4NDk1Y1wvZDZueXo0MS04NGFhZGM3Zi1mZDkyLTRiZmItYmVhMS05ODU1NjM4NTA4MDcucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.GvK53Nf6PWiz2KTw4Q2ZtssjtWOEQSWCPpj9rs-3JMk"
 </p>
  <img width="80" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/0152b7e9-9fed-4292-b785-ebe950ff0d5a/d1fylxa-103faaf9-02f2-40bd-abfd-028fcd15ee33.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzAxNTJiN2U5LTlmZWQtNDI5Mi1iNzg1LWViZTk1MGZmMGQ1YVwvZDFmeWx4YS0xMDNmYWFmOS0wMmYyLTQwYmQtYWJmZC0wMjhmY2QxNWVlMzMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.ifm3cKeDdcRYZ4FOS64_bVHQ34WVtu_6AlukjdpaRpE"
-</p>
- <img width="80" src="https://autism.crd.co/assets/images/gallery05/4a1a48c0.gif?v=69d6a439"
  </p>
- <img width="80" src="https://64.media.tumblr.com/f3684b3d0572fc8e333b736995b4bed4/0c9d6b33bcece83c-27/s100x200/46001306742557758f0f023ec2448648bd64836e.gifv"
- </p>
- <img width="80" src="https://i.imgur.com/7K2LHkG.png"
+  <img width="80" src="https://autism.crd.co/assets/images/gallery05/4a1a48c0.gif?v=69d6a439"
  </p>
  <img width="67" src="https://i.imgur.com/KDiCKbI.gif"
  </p>
@@ -257,7 +253,5 @@
  <img width="2000" src="https://gifcity.carrd.co/assets/images/gallery40/0a24ec5b.gif?v=7421cb56"
  <p/>
 <p align="center">
-<img width="150" src="https://i.imgur.com/pa6I8bL.png"
+<img width="300" src="https://i.imgur.com/NzGsSZB.png"
 <p/>
-<img width="150" src="https://i.imgur.com/ls79EEa.png"
- <p/>
