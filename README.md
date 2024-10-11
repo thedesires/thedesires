@@ -1,7 +1,7 @@
 <p align="center">
 <h4 align="center"
  
-![](https://komarev.com/ghpvc/?username=thedesires&label=𐙚+profile+views+♡(+◡‿◡+)&color=yellow&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=thedesires&label=𐙚+profile+views+♡(˘･‿･˘)+++&color=yellow&abbreviated=true)
 
  </h4>
 <p align="center">
