@@ -37,7 +37,7 @@
  cringe & free ♡( ◡‿◡ )
  </p>
   <p align="center"> 
-<a href="https://thedesires.atabook.org/">ATABOOK</a> ${\color{red}.}$ <a href="https://bundlrs.cc/kusuo.saiki">BUNDLRS</a> ${\color{red}.}$ <a href="https://listography.com/thedesires">INTERESTS</a>
+<a href="https://thedesires.atabook.org/">ATABOOK</a> ${\color{yellow}.}$ <a href="https://bundlrs.cc/kusuo.saiki">BUNDLRS</a> ${\color{yellow}.}$ <a href="https://listography.com/thedesires">INTERESTS</a>
   </p>
   <p align="center">
  <img width="35" src="https://64.media.tumblr.com/8a3541b7a02e7d01db772cc0344b141b/d38264845c94c5f6-06/s75x75_c1/ad26ccb946cfcbec9c6017c59445c7660f5d405d.gifv"
