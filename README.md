@@ -1,35 +1,38 @@
 <p align="center">
 <h4 align="center"
  
-![](https://komarev.com/ghpvc/?username=thedesires&label=𐙚+profile+views+++&color=orange)
+⊹ ࣪ ˖ ![](https://komarev.com/ghpvc/?username=thedesires&label=𐙚+profile+views+++&color=orange) 𖦹๋࣭⭑
 
  </h4>
 <p align="center">
- <img width="900" src="https://i.imgur.com/jJyZHEN.gif"
+ <img width="900" src="https://i.imgur.com/1R5Ixne.png"
  </p>
  <p align="center"> 
- <img width="600" src="https://64.media.tumblr.com/bd1c7c76589cf4b1154e9c24775f3e97/08b6024acb610772-33/s400x600/ec46984004365b494395f1b069126afd192d1132.gifv"
+ <strong>${\color{orange}" ‎Boy, ‎I ‎sure ‎hope ‎we ‎have ‎a ‎great ‎time ‎in ‎Okinawa, ‎Seiji ‎! ‎"}$
+ </p>
+ <p align="center"> 
+ <img width="600" src="https://64.media.tumblr.com/c216c8f380e1560ed48d63955804c556/0366976562d72020-b2/s400x600/2d32f11b9ea4ae2b74f7eb9ecf046f157aa11985.gifv"
  </p>
   <p align="center"> 
-  <strong>${\color{red}➤}$⠀feel free to int</strong>, i dont bite and i'm up for conversations
+  <strong>${\color{orange}➤}$⠀feel free to int</strong>, i dont bite and i'm up for conversations
    </p>
   <p align="center"> 
   kiss/boop & c+h is okay, idm at all
    </p>
   <p align="center"> 
-  <strong>${\color{red}➤}$⠀whisper 2 int</strong>, im offtab alot or just not paying attention
+  <strong>${\color{orange}➤}$⠀whisper 2 int</strong>, im offtab alot or just not paying attention
    </p>
   <p align="center"> 
-  <strong>${\color{red}➤}$⠀i dont talk much</strong>, im not talkative and i often dont int first due to anxiety
+  <strong>${\color{orange}➤}$⠀i dont talk much</strong>, im not talkative and i often dont int first due to anxiety
      </p>
   <p align="center"> 
-  <strong>${\color{red}➤}$⠀i got flagged for not paying 24$/month</strong>, so u wont see me as often
+  <strong>${\color{orange}➤}$⠀i got flagged for not paying 24$/month</strong>, so u wont see me as often
   </p>
   <p align="center">
-  <strong>${\color{red}➤}$⠀pls sign my atabook!!,</strong> if you want to ofc ^_^
+  <strong>${\color{orange}➤}$⠀pls sign my atabook!!,</strong> if you want to ofc ^_^
   </p>
   <p align="center">
- <img width="25" src="https://64.media.tumblr.com/07a02480e07bf5757cb5b3a27b8d1bfb/f4d52b788dc9d5fb-07/s75x75_c1/4ca2bacdea9e0728e77fe78e72b66c3c81e8d566.gifv"
+ <img width="25" src="https://64.media.tumblr.com/92878ca21831de6668a24ac7fcc3bc75/7679189921de4f07-18/s75x75_c1/15bb1b79a1214c95eb7246139e65bb660d09ca77.gifv"
  </p>
  cringe & free ♡( ◡‿◡ )
  </p>
@@ -37,12 +40,12 @@
 <a href="https://thedesires.atabook.org/">ATABOOK</a> ${\color{red}.}$ <a href="https://bundlrs.cc/kusuo.saiki">BUNDLRS</a> ${\color{red}.}$ <a href="https://listography.com/thedesires">INTERESTS</a>
   </p>
   <p align="center">
- <img width="35" src="https://64.media.tumblr.com/1afddb70392f6d77a04061f6f2f74aff/2548834662a1f658-67/s75x75_c1/abff121fa1c8d18f60e4bb90df6c9c4dfac57e23.gifv"
+ <img width="35" src="https://64.media.tumblr.com/8a3541b7a02e7d01db772cc0344b141b/d38264845c94c5f6-06/s75x75_c1/ad26ccb946cfcbec9c6017c59445c7660f5d405d.gifv"
  </p>
- <img width="35" src="https://64.media.tumblr.com/dd391fbd025b34ce969370a10706e18e/6caf58e0782c326d-a1/s75x75_c1/04d3dd7bf8d2d4d6a74bf4dc58fa49cb0a4ff90d.gifv"
+ <img width="35" src="https://64.media.tumblr.com/2b55f867f8fcb19b10d0ec037acc32a8/d38264845c94c5f6-dc/s75x75_c1/3d250a82346d03f2d2f217738c77a71d3af68887.gifv"
   </p>
   <p align="center"> 
- <img width="600" src="https://64.media.tumblr.com/bd1c7c76589cf4b1154e9c24775f3e97/08b6024acb610772-33/s400x600/ec46984004365b494395f1b069126afd192d1132.gifv"
+ <img width="600" src="https://64.media.tumblr.com/c216c8f380e1560ed48d63955804c556/0366976562d72020-b2/s400x600/2d32f11b9ea4ae2b74f7eb9ecf046f157aa11985.gifv"
   </p>
   <p align="center">
  </p>
@@ -141,7 +144,7 @@
 
 
 <p align="center">
- <img width="35" src="https://64.media.tumblr.com/989e97a17d7b6979e2b35561639ea5d4/2548834662a1f658-77/s75x75_c1/1a80d7de0573c02f5a1971c218b8ab34118cf704.gifv"
+ <img width="35" src="https://64.media.tumblr.com/754510109856df49a3067f81696449a3/d38264845c94c5f6-09/s75x75_c1/ca35413831481402020da786e1c5f4cabc332404.gifv"
  </p>
 
  
@@ -207,5 +210,5 @@
  <img width="2000" src="https://gifcity.carrd.co/assets/images/gallery40/0a24ec5b.gif?v=7421cb56"
  <p/>
 <p align="center">
-<img width="300" src="https://i.imgur.com/NzGsSZB.png"
+<img width="300"+length="300" src="https://i.imgur.com/XTB5StR.png"
 <p/>
