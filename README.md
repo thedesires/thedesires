@@ -209,6 +209,9 @@
 <p align="center">
  <img width="2000" src="https://gifcity.carrd.co/assets/images/gallery40/0a24ec5b.gif?v=7421cb56"
  <p/>
+ <p align="center"> 
+ <strong>${\color{orange} the ‎summer ‎in ‎question ‎:}$
+ </p>
 <p align="center">
 <img width="300"+length="300" src="https://i.imgur.com/XTB5StR.png"
 <p/>
