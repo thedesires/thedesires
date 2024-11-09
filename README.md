@@ -5,7 +5,7 @@
 
  </h4>
 <p align="center">
- <img width="900" src="https://i.imgur.com/1R5Ixne.png"
+ <img width="900" src="https://i.imgur.com/dC0k8uV.png"
  </p>
  <p align="center"> 
  <strong>${\color{orange}" ‎Boy, ‎I ‎sure ‎hope ‎we ‎have ‎a ‎great ‎time ‎in ‎Okinawa, ‎Seiji ‎! ‎"}$
