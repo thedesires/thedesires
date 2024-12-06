@@ -202,7 +202,7 @@
 <img width="170" src="https://64.media.tumblr.com/9649a2cbdaad4cba3254ad22cf485de2/f975e1a607dcc62d-be/s250x400/7b0c75cd36857af5fdb9057abf338c7d5fdff25b.gifv"
 <p/>
 
-> persona kid likers dni i will eat you guys alive geez.
+> persona kid likers dni i will eat you guys alive geez. also mouthwashing & postal dni yall ick me
 <p align="center">
  <img width="2000" src="https://gifcity.carrd.co/assets/images/gallery40/0a24ec5b.gif?v=7421cb56"
  <p/>
