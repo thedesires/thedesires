@@ -23,13 +23,10 @@
   <strong>${\color{orange}➤}$⠀whisper 2 int</strong>, im offtab alot or just not paying attention
    </p>
   <p align="center"> 
-  <strong>${\color{orange}➤}$⠀i dont talk much</strong>, im not talkative and i often dont int first due to anxiety
-     </p>
-  <p align="center"> 
   <strong>${\color{orange}➤}$⠀i got flagged for not paying 24$/month</strong>, so u wont see me as often
   </p>
   <p align="center">
-  <strong>${\color{orange}➤}$⠀pls sign my atabook!!,</strong> if you want to ofc ^_^
+  <strong>${\color{orange}➤}$ sign my atabook!!,</strong> if you want to ofc ^_^
   </p>
   <p align="center">
  <img width="25" src="https://64.media.tumblr.com/92878ca21831de6668a24ac7fcc3bc75/7679189921de4f07-18/s75x75_c1/15bb1b79a1214c95eb7246139e65bb660d09ca77.gifv"
