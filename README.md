@@ -207,8 +207,8 @@
  <img width="2000" src="https://gifcity.carrd.co/assets/images/gallery40/0a24ec5b.gif?v=7421cb56"
  <p/>
  <p align="center"> 
- <strong>${\color{orange} the ‎summer ‎in ‎question ‎:}$
+ <strong>${\color{orange} sigh ‎}$
  </p>
 <p align="center">
-<img width="300"+length="300" src="https://i.imgur.com/XTB5StR.png"
+<img width="300"+length="300" src="https://i.pinimg.com/736x/45/af/1c/45af1c9cd14c6bd0a1fa9dfc4797781b.jpg"
 <p/>
