@@ -16,8 +16,10 @@
  <img width="550" src="https://files.catbox.moe/vajk2x.webp"
  </p>
  <p align="center"> 
+ ♡ ˗ˏ
   <strong>${\color{#356d7d}cam / desires}$⠀<img width="10" src="https://i.postimg.cc/X77FHRc6/m8sm67.gif" </strong>
 ‎ they . them  
+ ᶻ 𝗓 𐰁 .ᐟ
 <p align="center">
  <img width="50" src="https://files.catbox.moe/pu1y5m.gif"
  </p>
