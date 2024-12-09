@@ -15,9 +15,9 @@
  <p align="center"> 
  <img width="550" src="https://files.catbox.moe/vajk2x.webp"
  </p>
-  <p align="center"> 
-  <strong>${\color{#356d7d}cam / desires}$⠀they . them </strong>
- 
+ <p align="center"> 
+  <strong>${\color{#356d7d}cam / desires}$⠀<img width="10" src="https://i.postimg.cc/X77FHRc6/m8sm67.gif" </strong>
+‎ they . them  
 <p align="center">
  <img width="50" src="https://files.catbox.moe/pu1y5m.gif"
  </p>
@@ -27,10 +27,10 @@
  </p>
   
   <p align="center"> 
-  <strong>${\color{#356d7d}➤}$⠀whisper 2 int</strong>, im offtab alot or just not paying attention
+  <strong>${\color{#356d7d}➤}$⠀whisper 2 int</strong>, i dont bite i swear
    </p>
   <p align="center"> 
-  <strong>${\color{#356d7d}➤}$⠀i got flagged for not paying 24$/month</strong>, u wont see me as often
+  <strong>${\color{#356d7d}➤}$⠀i got flagged for not paying 24$/month</strong>, (autoclicker)
   </p>
   <p align="center">
   <strong>${\color{#356d7d}➤}$ sign my atabook!!,</strong> if you want to ofc ^_^
@@ -41,9 +41,12 @@
  cringe & free ♡( ◡‿◡ )
  </p>
   <p align="center">
- [
+ <img width="25" src="https://i.postimg.cc/PPn4KyhD/8-B74-C5-EC-2-F1-E-4-D5-F-9487-0976-BE9-D1-DD5.gif"
+  </p>
+ ‎ 
 <a href="https://thedesires.atabook.org/">ATABOOK</a> ${\color{#7da4af}.}$ <a href="https://bundlrs.cc/makotoyuki">BUNDLRS</a> ${\color{#7da4af}.}$ <a href="https://listography.com/thedesires">INTERESTS</a>
-  ]
+ ‎ 
+<img width="25" src="https://i.postimg.cc/ZWVxbhNP/D00-DBF85-666-B-4815-A380-79-B9-EB09-B41-A.gif"
   </p>
   <p align="center">
  <img width="25" src="https://i.postimg.cc/y6X911YZ/p0vl54.gif"
