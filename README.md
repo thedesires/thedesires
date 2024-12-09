@@ -33,7 +33,7 @@
   <strong>${\color{#356d7d}➤}$⠀i got flagged for not paying 24$/month</strong>, (autoclicker)
   </p>
   <p align="center">
-  <strong>${\color{#356d7d}➤}$ sign my atabook!!,</strong> if you want to ofc ^_^
+  <strong>${\color{#356d7d}➤}$ read my bundlrs!!</strong> 4 more info ^_^
   </p>
   <p align="center">
  <img width="18" src="https://i.postimg.cc/8CKKnRxT/xoei0d.gif"
@@ -59,8 +59,14 @@
   <p align="center">
  </p>
 
-> persona kid likers dni i will eat you guys alive geez. also mouthwashing & postal dni yall ick me
-<p align="center">
- <img width="600" src="https://i.imgur.com/nBsOn01.png"
- <p/>
  <p align="center"> 
+<strong>${\color{#91cddd} sigh ‎}$
+ </p>
+<p align="center">
+<img width="300"+length="300" src="https://i.pinimg.com/736x/45/af/1c/45af1c9cd14c6bd0a1fa9dfc4797781b.jpg"
+<p/>
+
+> persona kid likers dni i will eat you guys alive geez.
+
+
+> mouthwashing & postal dni yall ick me
