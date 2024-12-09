@@ -32,10 +32,10 @@
   <strong>${\color{#356d7d}➤}$⠀whisper 2 int</strong>, i dont bite i swear
    </p>
   <p align="center"> 
-  <strong>${\color{#356d7d}➤}$⠀i got flagged for not paying 24$/month</strong>, (autoclicker)
+  <strong>${\color{#356d7d}➤}$⠀i got flagged for not paying 24$/month</strong>
   </p>
   <p align="center">
-  <strong>${\color{#356d7d}➤}$ read my bundlrs!!</strong> 4 more info ^_^
+  <strong>${\color{#356d7d}➤}$ read my bundlrs </strong> 4 more info !!
   </p>
   <p align="center">
  <img width="18" src="https://i.postimg.cc/8CKKnRxT/xoei0d.gif"
