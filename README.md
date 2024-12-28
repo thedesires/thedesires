@@ -29,7 +29,7 @@
  </p>
   
   <p align="center"> 
-  <strong>${\color{#356d7d}➤}$⠀m likely to be afk</strong>, whisper 2 int
+  <strong>${\color{#356d7d}➤}$ likely to be offtab</strong>, whisper 2 int !
    </p>
   <p align="center"> 
   <strong>${\color{#356d7d}➤}$⠀i got flagged for not paying 24$/month</strong>
