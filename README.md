@@ -29,13 +29,13 @@
  </p>
   
   <p align="center"> 
-  <strong>${\color{#356d7d}➤}$⠀whisper 2 int</strong>, i dont bite i swear
+  <strong>${\color{#356d7d}➤}$⠀m likely to be afk</strong>, whisper 2 int
    </p>
   <p align="center"> 
   <strong>${\color{#356d7d}➤}$⠀i got flagged for not paying 24$/month</strong>
   </p>
   <p align="center">
-  <strong>${\color{#356d7d}➤}$ read my bundlrs </strong> 4 more info !!
+  <strong>${\color{#356d7d}➤}$ i dont take </strong> anything on this game srs
   </p>
   <p align="center">
  <img width="18" src="https://i.postimg.cc/8CKKnRxT/xoei0d.gif"
@@ -68,7 +68,7 @@
 <img width="300"+length="300" src="https://i.pinimg.com/736x/45/af/1c/45af1c9cd14c6bd0a1fa9dfc4797781b.jpg"
 <p/>
 
-> persona kid likers dni i will eat you guys alive geez.
+> gooner persona fans dni go take a shower geez.
 
 
 > mouthwashing & postal dni yall ick me
