@@ -16,14 +16,14 @@
  <img width="550" src="https://64.media.tumblr.com/97bae525b65744f19a445549918ab846/2006be11919028f2-cc/s400x600/90c21b84c7f9ccbe1772d4b5c12f8e7e3988ab26.gifv"
  </p>
  <p align="center"> 
- ${\color{#bd2f2f}♡   }$ ˗ˏ
+ ${\color{#ed2d2d}♡   }$ ˗ˏ
  <img width="60" src="https://i.imgur.com/Gtm8sTn.png" ‎  ‎ 
   ‎ 
  </p>
   ‎ <img width="20" src="https://64.media.tumblr.com/fad8bd0544a50085a1156580a68585e5/3711901869dc7043-5c/s75x75_c1/4c823ef73509e24a0c5f8f01ea2681692a893c5a.gifv"
  </p>
 ‎ they ${\color{#bd2f2f}.}$ them  
- ${\color{#801c1c}ᶻ 𝗓 𐰁 }$ .ᐟ
+ ${\color{#ed2d2d}ᶻ 𝗓 𐰁 }$ .ᐟ
 </p>
 <p align="center">
  <img width="55" src="https://64.media.tumblr.com/71bb65336d654ab86ee412c175e002a4/8827926dd56fd31f-6d/s75x75_c1/956a4d15892a22ea2d49991c78cc8ae8fc36f2a1.webp"
