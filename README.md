@@ -9,7 +9,7 @@
  </p>
  <p align="center"> 
   [
- <strong>${\color{#ad0e0e} ‎  So,‎  if‎ you‎ want‎ a‎ piece‎ of‎ me.‎ Come‎ and‎ get‎ it‎‎ !‎}$
+ <strong>${\color{#ad0e0e} ‎  So,‎  if‎ you‎ want‎ a‎ piece‎ of‎ me.‎ Come‎ and‎ get‎ it‎‎‎}$
  <img width="15" src="https://64.media.tumblr.com/59d869dde9e4c54cc4b32e0aa57b4251/bbb6fcd205bbed93-7f/s75x75_c1/6e73e18999d822dc77301dcbb6ee43d633529007.gifv"
  </p>
   ‎  ]
