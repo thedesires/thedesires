@@ -17,7 +17,7 @@
  </p>
  <p align="center"> 
  ${\color{#ed2d2d}♡   }$ ˗ˏ
- <img width="60" src="https://i.imgur.com/Gtm8sTn.png" ‎  ‎ 
+ <img width="50" src="https://i.imgur.com/Gtm8sTn.png" ‎  ‎ 
   ‎ 
  </p>
   ‎ <img width="20" src="https://64.media.tumblr.com/fad8bd0544a50085a1156580a68585e5/3711901869dc7043-5c/s75x75_c1/4c823ef73509e24a0c5f8f01ea2681692a893c5a.gifv"
