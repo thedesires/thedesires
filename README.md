@@ -5,7 +5,7 @@
 
  </h4>
 <p align="center">
- <img width="800" src="https://i.imgur.com/C2cjWlu.gif"
+ <img width="900" src="https://i.imgur.com/C2cjWlu.gif"
  </p>
  <p align="center"> 
   [
