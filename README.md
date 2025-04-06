@@ -9,11 +9,11 @@
  </p>
  <p align="center"> 
   [
- <strong>${\color{#ad0e0e}  Easy, ‎ Fido!‎ how ‎ about ‎ I‎  take ‎ you ‎ out ‎ for ‎ a‎  walk? ‎ Come ‎ on‎  puppy, ‎ let's‎  go‎ !‎}$
+ <strong>${\color{#ad0e0e}  So,‎ you‎ want‎ a‎ piece‎ of‎ me,‎ literally.‎ Okay‎ bro.‎ Come‎ and‎ get‎ it,‎ if‎ you‎ can‎‎ !‎}$
   ]
  </p>
  <p align="center"> 
- <img width="550" src="https://64.media.tumblr.com/97bae525b65744f19a445549918ab846/2006be11919028f2-cc/s400x600/90c21b84c7f9ccbe1772d4b5c12f8e7e3988ab26.gifv"
+ <img width="525" src="https://64.media.tumblr.com/97bae525b65744f19a445549918ab846/2006be11919028f2-cc/s400x600/90c21b84c7f9ccbe1772d4b5c12f8e7e3988ab26.gifv"
  </p>
  <p align="center"> 
  ${\color{#ed2d2d}♡   }$ ˗ˏ
@@ -61,7 +61,7 @@
  <img width="25" src="https://64.media.tumblr.com/6b0d4b8b6d0efe998b4ecdbc317bb400/96812b3b3a743299-67/s75x75_c1/46deeb715130623b4da6d2ff6021e42c3978419f.gifv"
   </p>
   <p align="center"> 
- <img width="550" src="https://64.media.tumblr.com/97bae525b65744f19a445549918ab846/2006be11919028f2-cc/s400x600/90c21b84c7f9ccbe1772d4b5c12f8e7e3988ab26.gifv"
+ <img width="525" src="https://64.media.tumblr.com/97bae525b65744f19a445549918ab846/2006be11919028f2-cc/s400x600/90c21b84c7f9ccbe1772d4b5c12f8e7e3988ab26.gifv"
   </p>
   <p align="center">
  </p>
