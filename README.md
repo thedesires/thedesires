@@ -45,7 +45,7 @@
   <strong>${\color{#801c1c}➤}$ i dont take </strong> anything on this game srs
   </p>
   <p align="center">
- <img width="30" src="https://64.media.tumblr.com/930117a1cfc053c7a64a46bdc1f2747f/2a6ba979c585bbd6-90/s75x75_c1/4b369cd74f99b805577bc466283c4b2daab56ec0.gifv"
+ <img width="20" src="https://64.media.tumblr.com/930117a1cfc053c7a64a46bdc1f2747f/2a6ba979c585bbd6-90/s75x75_c1/4b369cd74f99b805577bc466283c4b2daab56ec0.gifv"
  </p>
  cringe & free ♡( ◡‿◡ )
  </p>
