@@ -1,7 +1,7 @@
 <p align="center">
 <h4 align="center"
  
-⊹ ࣪ ˖  ![](https://komarev.com/ghpvc/?username=thedesires&label=𐙚+profile+views+++&color=942f27)  𖦹 ๋࣭ ⭑ 
+⊹ ࣪ ˖  ![](https://komarev.com/ghpvc/?username=thedesires&label=𐙚+faggots++&color=942f27)  𖦹 ๋࣭ ⭑ 
 
  </h4>
 <p align="center">
