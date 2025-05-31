@@ -18,14 +18,18 @@
  <img width="525" src="https://64.media.tumblr.com/97bae525b65744f19a445549918ab846/2006be11919028f2-cc/s400x600/90c21b84c7f9ccbe1772d4b5c12f8e7e3988ab26.gifv"
  </p>
  <p align="center"> 
-♡    ˗ˏ
+ <img width="20" src="https://files.catbox.moe/f7z1x2.gif"
+  </p>
+  ˗ˏ
  <img width="50" src="https://i.imgur.com/Gtm8sTn.png" ‎  ‎ 
   ‎ 
  </p>
   ‎ <img width="20" src="https://64.media.tumblr.com/fad8bd0544a50085a1156580a68585e5/3711901869dc7043-5c/s75x75_c1/4c823ef73509e24a0c5f8f01ea2681692a893c5a.gifv"
  </p>
 ‎ they . them  
- ᶻ 𝗓 𐰁  .ᐟ
+ <img width="15" src="https://files.catbox.moe/pv594d.gif"
+  </p>
+  .ᐟ
 </p>
 <p align="center">
  <img width="55" src="https://64.media.tumblr.com/71bb65336d654ab86ee412c175e002a4/8827926dd56fd31f-6d/s75x75_c1/956a4d15892a22ea2d49991c78cc8ae8fc36f2a1.webp"
@@ -36,13 +40,19 @@
  </p>
   
   <p align="center"> 
-  <strong>➤ likely to be offtab</strong>, whisper 2 int !
+  <img width="20" src="https://i.postimg.cc/NMBV5MZT/1119041847407411250.webp"
+  </p>
+  <strong> likely to be offtab</strong>, whisper 2 int !
    </p>
   <p align="center"> 
-   <strong>➤⠀i got flagged for not paying 24$/month</strong>
+   <img width="20" src="https://i.postimg.cc/NMBV5MZT/1119041847407411250.webp"
+  </p> 
+   <strong> got flagged for not paying 24$/month</strong>
   </p>
   <p align="center">
-   <strong>➤ i dont take </strong> anything on this game srs
+    <img width="20" src="https://i.postimg.cc/NMBV5MZT/1119041847407411250.webp"
+  </p>
+   <strong> i dont take </strong> anything on this game srs
   </p>
   <p align="center">
  <img width="20" src="https://64.media.tumblr.com/930117a1cfc053c7a64a46bdc1f2747f/2a6ba979c585bbd6-90/s75x75_c1/4b369cd74f99b805577bc466283c4b2daab56ec0.gifv"
