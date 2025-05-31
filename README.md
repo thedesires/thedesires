@@ -8,11 +8,11 @@
  <img width="900" src="https://i.imgur.com/C2cjWlu.gif"
  </p>
  <p align="center"> 
-  [
- <strong> So,‎  if‎ you‎ want‎ a‎ piece‎ of‎ me.‎ Come‎ and‎ get‎ it‎‎‎!
- <img width="15" src="https://64.media.tumblr.com/59d869dde9e4c54cc4b32e0aa57b4251/bbb6fcd205bbed93-7f/s75x75_c1/6e73e18999d822dc77301dcbb6ee43d633529007.gifv"
+  <img width="25" src="https://i.postimg.cc/02jCFvq9/sm5afu.gif"
  </p>
-  ‎  ]
+ <img width="425" src="https://files.catbox.moe/a2h6wa.png"
+ </p>
+ <img width="30" src="https://i.postimg.cc/t419msTp/IMG-9834.png"  
  </p>
  <p align="center"> 
  <img width="525" src="https://64.media.tumblr.com/97bae525b65744f19a445549918ab846/2006be11919028f2-cc/s400x600/90c21b84c7f9ccbe1772d4b5c12f8e7e3988ab26.gifv"
