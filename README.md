@@ -9,7 +9,7 @@
  </p>
  <p align="center"> 
   [
- <strong>${\color{#ad0e0e} ‎  So,‎  if‎ you‎ want‎ a‎ piece‎ of‎ me.‎ Come‎ and‎ get‎ it‎‎‎!}$
+ <strong> So,‎  if‎ you‎ want‎ a‎ piece‎ of‎ me.‎ Come‎ and‎ get‎ it‎‎‎!
  <img width="15" src="https://64.media.tumblr.com/59d869dde9e4c54cc4b32e0aa57b4251/bbb6fcd205bbed93-7f/s75x75_c1/6e73e18999d822dc77301dcbb6ee43d633529007.gifv"
  </p>
   ‎  ]
@@ -18,14 +18,14 @@
  <img width="525" src="https://64.media.tumblr.com/97bae525b65744f19a445549918ab846/2006be11919028f2-cc/s400x600/90c21b84c7f9ccbe1772d4b5c12f8e7e3988ab26.gifv"
  </p>
  <p align="center"> 
- ${\color{#ed2d2d}♡   }$ ˗ˏ
+♡    ˗ˏ
  <img width="50" src="https://i.imgur.com/Gtm8sTn.png" ‎  ‎ 
   ‎ 
  </p>
   ‎ <img width="20" src="https://64.media.tumblr.com/fad8bd0544a50085a1156580a68585e5/3711901869dc7043-5c/s75x75_c1/4c823ef73509e24a0c5f8f01ea2681692a893c5a.gifv"
  </p>
-‎ they ${\color{#bd2f2f}.}$ them  
- ${\color{#ed2d2d}ᶻ 𝗓 𐰁 }$ .ᐟ
+‎ they . them  
+ ᶻ 𝗓 𐰁  .ᐟ
 </p>
 <p align="center">
  <img width="55" src="https://64.media.tumblr.com/71bb65336d654ab86ee412c175e002a4/8827926dd56fd31f-6d/s75x75_c1/956a4d15892a22ea2d49991c78cc8ae8fc36f2a1.webp"
@@ -36,13 +36,13 @@
  </p>
   
   <p align="center"> 
-  <strong>${\color{#801c1c}➤}$ likely to be offtab</strong>, whisper 2 int !
+  <strong>➤ likely to be offtab</strong>, whisper 2 int !
    </p>
   <p align="center"> 
-  <strong>${\color{#801c1c}➤}$⠀i got flagged for not paying 24$/month</strong>
+   <strong>➤⠀i got flagged for not paying 24$/month</strong>
   </p>
   <p align="center">
-  <strong>${\color{#801c1c}➤}$ i dont take </strong> anything on this game srs
+   <strong>➤ i dont take </strong> anything on this game srs
   </p>
   <p align="center">
  <img width="20" src="https://64.media.tumblr.com/930117a1cfc053c7a64a46bdc1f2747f/2a6ba979c585bbd6-90/s75x75_c1/4b369cd74f99b805577bc466283c4b2daab56ec0.gifv"
@@ -53,7 +53,7 @@
  <img width="25" src="https://64.media.tumblr.com/bda4e8b766d6f5aaa4f8505aea3ef0ea/4149a1d35ab9816c-e6/s75x75_c1/a63975ffe3f5a93c85d889c20ac683e9e2474b25.gif"
   </p>
  ‎ 
-<a href="https://thedesires.atabook.org/">ATABOOK</a> ${\color{#801c1c}.}$ <a href="https://bundlrs.cc/makotoyuki">BUNDLRS</a> ${\color{#801c1c}.}$ <a href="https://listography.com/raidante">INTERESTS</a> 
+<a href="https://thedesires.atabook.org/">ATABOOK</a> . <a href="https://bundlrs.cc/makotoyuki">BUNDLRS</a> . <a href="https://listography.com/raidante">INTERESTS</a> 
  ‎ 
 <img width="25" src="https://64.media.tumblr.com/4829d986f95e4abc1137b5e03991802e/4149a1d35ab9816c-cd/s75x75_c1/20fd0f71237bfd5c21a22d92ad23420c7fceaaa4.gif"
   </p>
