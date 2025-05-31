@@ -26,7 +26,10 @@
  </p>
   ‎ <img width="20" src="https://64.media.tumblr.com/fad8bd0544a50085a1156580a68585e5/3711901869dc7043-5c/s75x75_c1/4c823ef73509e24a0c5f8f01ea2681692a893c5a.gifv"
  </p>
-‎ they . them  
+‎ they 
+ <img width="5" src="https://i.postimg.cc/2y5K7tkS/1119041860707557486.webp"
+  </p>
+ them  
  <img width="15" src="https://files.catbox.moe/pv594d.gif"
   </p>
   .ᐟ
@@ -57,13 +60,22 @@
   <p align="center">
  <img width="20" src="https://64.media.tumblr.com/930117a1cfc053c7a64a46bdc1f2747f/2a6ba979c585bbd6-90/s75x75_c1/4b369cd74f99b805577bc466283c4b2daab56ec0.gifv"
  </p>
- cringe & free ♡( ◡‿◡ )
+ cringe‎
+  <img width="13" src="https://i.postimg.cc/gjSHjS39/ebbacccd.gif"
+  </p>
+ free ♡( ◡‿◡ )
  </p>
   <p align="center">
  <img width="25" src="https://64.media.tumblr.com/bda4e8b766d6f5aaa4f8505aea3ef0ea/4149a1d35ab9816c-e6/s75x75_c1/a63975ffe3f5a93c85d889c20ac683e9e2474b25.gif"
   </p>
  ‎ 
-<a href="https://thedesires.atabook.org/">ATABOOK</a> . <a href="https://bundlrs.cc/makotoyuki">BUNDLRS</a> . <a href="https://listography.com/raidante">INTERESTS</a> 
+<a href="https://thedesires.atabook.org/">ATABOOK</a>
+<img width="5" src="https://i.postimg.cc/2y5K7tkS/1119041860707557486.webp"
+  </p>
+<a href="https://bundlrs.cc/makotoyuki">BUNDLRS</a> 
+ <img width="5" src="https://i.postimg.cc/2y5K7tkS/1119041860707557486.webp"
+  </p>
+ <a href="https://listography.com/raidante">INTERESTS</a> 
  ‎ 
 <img width="25" src="https://64.media.tumblr.com/4829d986f95e4abc1137b5e03991802e/4149a1d35ab9816c-cd/s75x75_c1/20fd0f71237bfd5c21a22d92ad23420c7fceaaa4.gif"
   </p>
