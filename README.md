@@ -1,54 +1,30 @@
 <p align="center">
 <h4 align="center"
  
-⊹ ࣪ ˖  ![](https://komarev.com/ghpvc/?username=thedesires&label=𐙚+faggots++&color=942f27)  𖦹 ๋࣭ ⭑ 
+⊹ ࣪ ˖  ![](https://komarev.com/ghpvc/?username=thedesires&label=𐙚+faggots++&color=708165)  𖦹 ๋࣭ ⭑ 
 
  </h4>
 <p align="center">
- <img width="900" src="https://i.imgur.com/C2cjWlu.gif"
+ <img width="900" src="https://files.catbox.moe/hmlgtr.gif"
  </p>
  <p align="center"> 
-  <img width="25" src="https://i.postimg.cc/02jCFvq9/sm5afu.gif"
- </p>
- <img width="425" src="https://files.catbox.moe/a2h6wa.png"
- </p>
- <img width="30" src="https://i.postimg.cc/t419msTp/IMG-9834.png"  
- </p>
- <p align="center"> 
- <img width="525" src="https://64.media.tumblr.com/97bae525b65744f19a445549918ab846/2006be11919028f2-cc/s400x600/90c21b84c7f9ccbe1772d4b5c12f8e7e3988ab26.gifv"
+ <img width="450" src="https://64.media.tumblr.com/22a93c29cf3357cadd40f45cffb0d06d/8cf3f72c5d5c0571-cf/s500x750/fb3f951b56ff34e2391518b0be7de32f9cdec6de.pnj"
  </p>
 
-</p>
 
-  <p align="center"> 
- <img width="20" src="https://files.catbox.moe/f7z1x2.gif"
-  </p>
-  ˗ˏ
- <img width="50" src="https://i.imgur.com/Gtm8sTn.png" ‎  ‎ 
-  ‎ 
- </p>
-  ‎ <img width="20" src="https://64.media.tumblr.com/fad8bd0544a50085a1156580a68585e5/3711901869dc7043-5c/s75x75_c1/4c823ef73509e24a0c5f8f01ea2681692a893c5a.gifv"
- </p>
-‎ they 
- <img width="5" src="https://i.postimg.cc/2y5K7tkS/1119041860707557486.webp"
-  </p>
- them  
- <img width="15" src="https://files.catbox.moe/pv594d.gif"
-  </p>
-  .ᐟ
   <p align="center">
- <img width="25" src="https://64.media.tumblr.com/bda4e8b766d6f5aaa4f8505aea3ef0ea/4149a1d35ab9816c-e6/s75x75_c1/a63975ffe3f5a93c85d889c20ac683e9e2474b25.gif"
+ <img width="20" src="https://i.imgur.com/urzELT7.gif"
   </p>
  ‎ 
 <a href="https://thedesires.atabook.org/">ATABOOK</a>
-<img width="5" src="https://i.postimg.cc/2y5K7tkS/1119041860707557486.webp"
+<img width="5" src="https://64.media.tumblr.com/d542d726c0bafb508e47a93a9664f9c3/c24f8aa83ab6df7a-4e/s75x75_c1/dae12be90bc642bfe5b1c053d44356605f1275ad.pnj"
   </p>
 <a href="https://bundlrs.cc/makotoyuki">BUNDLRS</a> 
- <img width="5" src="https://i.postimg.cc/2y5K7tkS/1119041860707557486.webp"
+ <img width="5" src="https://64.media.tumblr.com/d542d726c0bafb508e47a93a9664f9c3/c24f8aa83ab6df7a-4e/s75x75_c1/dae12be90bc642bfe5b1c053d44356605f1275ad.pnj"
   </p>
  <a href="https://listography.com/raidante">INTERESTS</a> 
  ‎ 
-<img width="25" src="https://64.media.tumblr.com/4829d986f95e4abc1137b5e03991802e/4149a1d35ab9816c-cd/s75x75_c1/20fd0f71237bfd5c21a22d92ad23420c7fceaaa4.gif"
+<img width="20" src="https://i.imgur.com/NYuEkC7.gif"
   </p>
  <p align="center">
  <img width="90" src="https://64.media.tumblr.com/b90008f803e3e6a2d74eea20c4921015/8b6f19b5a3832b3c-52/s100x200/6ee0284b18a2e887f927fd3f6dcbc88d11353954.gifv"
