@@ -22,7 +22,7 @@
 <a href="https://thedesires.lurk.me">LURK.ME</a> 
  <img width="5" src="https://64.media.tumblr.com/d542d726c0bafb508e47a93a9664f9c3/c24f8aa83ab6df7a-4e/s75x75_c1/dae12be90bc642bfe5b1c053d44356605f1275ad.pnj"
   </p>
- <a href="https://listography.com/raidante">INTERESTS</a> 
+ <a href="https://www.last.fm/user/thedesires">LAST.FM</a> 
  ‎ 
 <img width="20" src="https://i.imgur.com/NYuEkC7.gif"
   </p>
@@ -47,4 +47,46 @@
   <img width="110" src="https://64.media.tumblr.com/d465b79d8c34e4674ba652cfeccf0d4a/a15ef306b0d59836-7c/s250x400/79370f4e0625a083cc0f64ee1a93079f5bf09efd.gifv"
  </p>
  <img width="85" src="https://64.media.tumblr.com/c200ebfedf7855170e4400804a1f6829/4beb10169e556eed-f6/s400x600/83a8a2495729737453d7f67c696e0eeddf5983a0.gifv"
+ </p>
+  
+<div align="center">
+  <table>
+    <tr></tr>
+      <td>
+<details>
+<summary>$\color{#769672}{\textsf{interests}}$</summary>
+
+<div align="center">
+$\color{#d8e8d5}{\textsf{interact if you like these medias }}$ 
+<img width="15" src='https://64.media.tumblr.com/00bcfe2537df9994cc8ce57b13d3f210/fc5c7be11f036c03-42/s75x75_c1/f11383c6ac91269a92027d882ce97787b8864cc3.gifv'>
+</p>
+ 
+<div align="center">
+$\color{#576656}{\textsf{re, persona, dmc, gfin, mgs, ff7, kh, funger, dunmeshi, hsr, outlast}}$
+</p>
+ 
+<div align="center">
+$\color{#d8e8d5}{\textsf{ships i like}}$ 
+</p>
+
+ <div align="center">
+$\color{#576656}{\textsf{chreon, winterfield, shukita, hamugis, shinjiham, akimina, verv, raidante, osaan, labru,}}$
+$\color{#576656}{\textsf{soriku, zakkura, genseph, bladeveil, souyo, bbkaz, otasune}}$
+</p>
+$\color{#d8e8d5}{\textsf{more}}$   
+<a href="https://listography.com/raidante">here</a> 
+$\color{#d8e8d5}{\textsf{if you gaf i guess}}$   
+ </p>
+ 
+<div align="center">
+<img width="75" src='https://64.media.tumblr.com/b50cc657219f6e257bb7479120c48177/470fdf01dfe04a25-9d/s75x75_c1/13250d5456576b8732687c0d390c71fc0f95559f.gifv'>
+<img width="75" src='https://64.media.tumblr.com/97d895fb1440a2e36a379f3bddb04946/470fdf01dfe04a25-b2/s75x75_c1/edaf5f27a838c92bce4d0502b31ccce41a5ef04d.gifv'>
+<img width="75" src='https://64.media.tumblr.com/676888838c985901a8b1cd497a2370a2/470fdf01dfe04a25-02/s75x75_c1/acb5cd51b745be6f2f41e7bc00c1d240f1d0046a.gifv'>
+</p>
+ 
+</details>
+ </td>
+      </tr>
+  </table>
+  
  </p>
