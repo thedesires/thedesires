@@ -70,7 +70,7 @@ $\color{#d8e8d5}{\textsf{ships i like}}$
 </p>
 
  <div align="center">
-$\color{#576656}{\textsf{chreon, winterfield, shukita, hamugis, shinjiham, akimina, verv, raidante, osaan, labru,}}$
+$\color{#576656}{\textsf{chreon, winterfield, mithan, shukita, hamugis, shinjiham, akimina, verv, raidante, osaan, raghara labru,}}$
 $\color{#576656}{\textsf{soriku, zakkura, genseph, bladeveil, souyo, bbkaz, otasune}}$
 </p>
 $\color{#d8e8d5}{\textsf{more}}$   
