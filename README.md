@@ -58,7 +58,7 @@
 
 <div align="center">
 $\color{#d8e8d5}{\textsf{interact if you like these medias }}$ 
-<img width="15" src='https://64.media.tumblr.com/00bcfe2537df9994cc8ce57b13d3f210/fc5c7be11f036c03-42/s75x75_c1/f11383c6ac91269a92027d882ce97787b8864cc3.gifv'>
+<img width="15" src='https://64.media.tumblr.com/0d73422068cbce612d4bccced9f10011/2058e7e3c0ccc0a9-84/s75x75_c1/2f53abe4ef2dfbedaddb3c5df2a74c8491ab1d38.gifv'>
 </p>
  
 <div align="center">
