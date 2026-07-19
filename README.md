@@ -22,7 +22,7 @@
 <a href="https://thedesires.lurk.me">LURK.ME</a> 
  <img width="5" src="https://64.media.tumblr.com/d542d726c0bafb508e47a93a9664f9c3/c24f8aa83ab6df7a-4e/s75x75_c1/dae12be90bc642bfe5b1c053d44356605f1275ad.pnj"
   </p>
- <a href="https://www.last.fm/user/thedesires">LAST.FM</a> 
+ <a href="https://p5dis.straw.page/">STRAWS</a> 
  ‎ 
 <img width="20" src="https://i.imgur.com/NYuEkC7.gif"
   </p>
