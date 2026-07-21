@@ -62,7 +62,7 @@ $\color{#d8e8d5}{\textsf{interact if you like these medias }}$
 </p>
  
 <div align="center">
-$\color{#576656}{\textsf{re, persona, dmc, gfin, mgs, ff7, kh, funger, dunmeshi, hsr, outlast}}$
+$\color{#576656}{\textsf{re, persona, dmc, gfin, mgs, ff7, kh, funger, dunmeshi, hsr, outlast, dmmd}}$
 </p>
  
 <div align="center">
