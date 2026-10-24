@@ -74,7 +74,7 @@ $\color{#576656}{\textsf{chreon, winterfield, mithan, shukita, akekita, hamugis,
 $\color{#576656}{\textsf{soriku, zakkura, genseph, bladeveil, souyo, bbkaz, otasune, nakahiro, otoniou, kouao}}$
 </p>
 $\color{#d8e8d5}{\textsf{more}}$   
-<a href="https://listography.com/raidante">here</a> 
+<a href="https://listography.com/akekita">here</a> 
 $\color{#d8e8d5}{\textsf{if you gaf i guess}}$   
  </p>
  
